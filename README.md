@@ -1,0 +1,1 @@
+The Plapoly Website is designed to provide comprehensive information about Plateau State Polytechnic Barkin Ladi. It serves as an online portal for students, staff, alumni, and visitors to access important updates, resources, and services offered by the institution.
